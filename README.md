@@ -1,16 +1,13 @@
-## Hi there 👋
+## Hellos 👋
+‎ 
 
-<!--
-**Enveiled/Enveiled** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  I suppose I exist.
 
-Here are some ideas to get you started:
+  Huge horror fan.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  Also me if you wanna check it out → https://www.planetminecraft.com/member/enveil/
+
+‎ 
+‎ 
+
+  Don't copy my stuff anywhere, no matter where you see me. Please and thank you.
