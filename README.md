@@ -20,4 +20,6 @@ Interest list ::
  
 Undertale/Deltarune (+AUs) , FNaF , The Walten Files , SCP , Call of Duty , Dead by Daylight , Literally any slasher movie , Hungry Lamu, Lethal Company , Invader Zim , JTHM , RBLX Pressure + Doors , ,
  
-aha,, I'm in too many fandoms. I also enjoy Phenomenon 228, and those horror Minecraft mods. Knocker is interesting,,
+aha,, I'm in too many fandoms.
+
+Currently have an obsession with SCP!! I DO KNOW WHAT ALAGADDA IS. PLEASE FRIEND ME IF YOU ALSO KNOW!!
