@@ -5,11 +5,12 @@
 
   Huge horror fan.
 
+
 ‎ 
 ‎ Lowkey have undiagnosed Empathy Deficit Disorder when it comes to strangers, please don't get angry if I inconvenience you or do something mean. I probably won't understand what I've done tbh.
-
 THIS IS NOT ME EXCUSING MYSELF FROM BEING MEAN. If I AM rude, do tell me.
 ‎ 
+
 ‎ 
 
 
