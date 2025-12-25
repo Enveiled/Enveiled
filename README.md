@@ -24,6 +24,6 @@ Interest list ::
  
 Undertale/Deltarune (+AUs) , FNaF , The Walten Files , SCP , Call of Duty , Dead by Daylight , Literally any slasher movie , Hungry Lamu, Lethal Company , Invader Zim , JTHM , RBLX Pressure + Doors , ,
  
-aha,, I'm in too many fandoms.
+aka, too many fandoms
 
-Currently have an obsession with SCP!! I DO KNOW WHAT ALAGADDA IS. PLEASE FRIEND ME IF YOU ALSO KNOW!!
+Obsession with Ghostface (Dead by Daylight)
