@@ -26,4 +26,4 @@ Undertale/Deltarune (+AUs) , FNaF , The Walten Files , SCP , Call of Duty , Dead
  
 aka, too many fandoms
 
-Obsession with Ghostface (Dead by Daylight)
+Fictkin/kin Ghostface (Dead by Daylight), so you'll see me as him a lot.
