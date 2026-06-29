@@ -4,8 +4,10 @@
   I suppose I exist. Dunno how to format in github so I apologize for this looking basic.
 
   not putting my age online broski
+
+  Pan. Any pronouns, idc lol
   
-  Huge horror fan. I enjoy pineapple on pizza. Pan. Supportive even if I don't have the words for it. Will block you if you decide to be homophobic.
+  Huge horror fan. I enjoy pineapple on pizza. Supportive even if I don't have the words for it. Will block you if you decide to be homophobic.
 
   Aphantasiac. Trypophobic if it's like a ton of tiny holes really really close to each other. i just cant look at it, its awful
 
