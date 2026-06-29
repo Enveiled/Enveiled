@@ -3,7 +3,15 @@
 
   I suppose I exist. Dunno how to format in github so I apologize for this looking basic.
 
-  Huge horror fan. I enjoy pineapple on pizza. Pan. Supportive even if I don't have the words for it.
+  not putting my age online broski
+  
+  Huge horror fan. I enjoy pineapple on pizza. Pan. Supportive even if I don't have the words for it. Will block you if you decide to be homophobic.
+
+  Aphantasiac. Trypophobic if it's like a ton of tiny holes really really close to each other. i just cant look at it, its awful
+
+  In games, I usually enjoy the lore more than the gameplay. I can yap about FNaF all day, man
+
+      D'ya like Ice Nine Kills?
 
 
 ‎
@@ -26,4 +34,12 @@ Terraria & Minecraft , FNaF , The Walten Files , SCP , Call of Duty , Dead by Da
  
 aka, too much and i need to stop getting new games
 
-Fictkin/kin Ghostface (Dead by Daylight)
+Fictkin/kin Ghostface (Dead by Daylight) , I love Danny sm
+
+
+
+   
+please interact if i'm online, sobs
+
+
+
