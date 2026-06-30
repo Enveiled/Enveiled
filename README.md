@@ -34,7 +34,7 @@ I'm free to roleplay any time. C+H also accepted any time, just please don't be 
   
   Interest list ::
  
-Terraria & Minecraft , FNaF , The Walten Files , SCP , Call of Duty , Dead by Daylight , Literally any slasher movie , Among Us , Rimworld , Palworld , Hungry Lamu , Lethal Company , Invader Zim , JTHM , Undertale/Deltarune , Don't Starve Together , The Boys (TV show, haven't read the comics) , The Backrooms (Kane Pixels, not wikidot) , Carrion , Cult of The Lamb , Duskers , ZERO Sievert , Pumpkin Panic! , & Dark Souls even though I haven't beat the games
+Terraria & Minecraft , FNaF , The Walten Files , SCP , Call of Duty , Dead by Daylight , Literally any slasher movie , Among Us , Rimworld , Palworld , Hungry Lamu , Lethal Company , Invader Zim , JTHM , Undertale/Deltarune , Don't Starve Together , The Boys (TV show, haven't read the comics) , The Backrooms (Kane Pixels, not wikidot) , Gravity Falls , Carrion , Cult of The Lamb , Duskers , ZERO Sievert , Pumpkin Panic! , & Dark Souls even though I haven't beat the games
  
   aka, too much and i need to stop getting new games
 
