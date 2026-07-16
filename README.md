@@ -1,46 +1,46 @@
 ## Hellos 👋
 ‎ 
 
-I suppose I exist. Dunno how to format in github so I apologize for this looking basic.
+I suppose I exist. Dunno how to format well in github so I apologize for this looking basic.
 
-  not putting my age online broski
-
-  Pan. Any pronouns, idc lol
-
-  Really desensitized to most things. no brainrot please im begging you.
-  
-  Huge horror fan. I enjoy pineapple on pizza. Supportive even if I don't have the words for it. Will block you if you decide to be homophobic.
-
-  Aphantasiac. Trypophobic if it's like a ton of tiny holes really really close to each other. i just cant look at it, its awful
-
+  not putting my age online broski\
+  Any pronouns\
+  Huge horror fan.\
   In games, I usually enjoy the lore more than the gameplay. I can yap about FNaF all day, man
 
-   D'ya like Ice Nine Kills?
-
-
-‎
-‎ 
-
-‎ 
-
-
-  DO NOT copy my stuff anywhere, no matter where you see me. Please and thank you.
-
-I'm free to roleplay any time. C+H also accepted any time, just please don't be sad if I leave/walk away., pretty pretty please (,:
-
-
- 
-
+  D'ya like\
+  ‎. • ☆ . ° .• ![Ice Nine Kills](https://imgur.com/BxiEjFB.png)?
   
-  Interest list ::
+‎
+‎ ☆
+
+  DO NOT copy my stuff anywhere, no matter where you see me. Please and thank you. C*pytown needs to die.
+
+I'm free to roleplay any time. I don't actively seek out roleplays at the docks because I'm vaguely uncomfy with a private island rp though\
+C+H also accepted whenever, just please don't be sad if I leave/walk away
+
+☆
+  
+#  Interest list (games) ::
  
-Terraria & Minecraft , FNaF , The Walten Files , SCP , Call of Duty , Dead by Daylight , Literally any slasher movie , Among Us , Rimworld , Palworld , Hungry Lamu , Lethal Company , Invader Zim , JTHM , Undertale/Deltarune , Don't Starve Together , The Boys (TV show, haven't read the comics) , The Backrooms (Kane Pixels, not wikidot) , Gravity Falls , Carrion , Cult of The Lamb , Duskers , ZERO Sievert , Pumpkin Panic! , & Dark Souls even though I haven't beat the games
- 
-  aka, too much and i need to stop getting new games
+Terraria & Minecraft ❤︎ |, FNaF ❤︎ |, The Walten Files |, SCP |, Call of Duty |, Dead by Daylight ❤︎ |, Among Us |, Rimworld |, Palworld |, Hungry Lamu |, Lethal Company |, JTHM |, Undertale/Deltarune ❤︎ |, Don't Starve Together |, The Backrooms (Kane Pixels, not wikidot) |, Carrion |, Cult of The Lamb |, Duskers |, ZERO Sievert |, Pumpkin Panic! |, & Dark Souls even though I haven't beat the games
 
-Fictkin/kin Ghostface (Dead by Daylight) , I love Danny sm
+##  Interest list (TV) ::
 
+Project Hail Mary ❤︎ |, The Thing (2011) ❤︎ |, The Mist |, Scream (1996) |, Alien (1979) |, Lost in Space |, Dexter |, The Boys |, Invader Zim |, Gravity Falls |, Paranormal Activity (2007) |, NOPE |, Us |, Smile (2022) |, Deadpool (all of them) |, The Conjuring (2013) |, Ringu (1998) |, 47 Meters Down |, War of the Worlds (2005) |, The Shining (1980)
 
+☆
 
+Honorable mentions: Jaws, for being the first horror movie I watched, and Child's Play for being my first "slasher" movie
+
+☆
    
    please interact if i'm online, sobs
+
+#  
+#  
+![text](https://imgur.com/heU7bPF.png)
+
+   ![Fictkin1,Danny](https://imgur.com/k1kmTpd.png)
+
+   ![Fictkin2,Ryland](https://imgur.com/Kutx7rZ.png)
