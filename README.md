@@ -45,11 +45,3 @@ Honorable mentions: Jaws, for being the first horror movie I watched, and Child'
 ☆
    
    please interact if i'm online, sobs
-
-#  
-#  
-![text](https://imgur.com/heU7bPF.png)
-
-   ![Fictkin1,Danny](https://imgur.com/k1kmTpd.png)
-
-   ![Fictkin2,Ryland](https://imgur.com/Kutx7rZ.png)
