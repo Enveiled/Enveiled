@@ -28,7 +28,7 @@ C+H also accepted whenever, just please don't be sad if I leave/walk away
 ☆
 
 ☆\
-← Say hi!!! ![Atabook](https://enveiledmask.atabook.org/) ←
+← wip hold on, atabook is an ipgrabber and im uncomfy w/ it
   
 #  Interest list (games) ::
  
