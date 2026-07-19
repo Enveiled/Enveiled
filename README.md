@@ -28,7 +28,7 @@ C+H also accepted whenever, just please don't be sad if I leave/walk away
 ☆
 
 ☆\
-← Say hi on my ![strawpage!](https://enveil.straw.page/) ← PLEASE PLEASE PLEASE PLEASE PLEASE
+← Say hi on my [strawpage!](https://enveil.straw.page/) ← PLEASE PLEASE PLEASE PLEASE PLEASE
   
 #  Interest list (games) ::
  
