@@ -4,9 +4,11 @@
 I suppose I exist. Dunno how to format well in github so I apologize for this looking basic.
 
   not putting my age online broski\
+  Anyone aged below 2 digits dni\
   Any pronouns\
   Huge horror fan.\
-  In games, I usually enjoy the lore more than the gameplay. I can yap about FNaF all day, man
+  In games, I usually enjoy the lore more than the gameplay. I can yap about FNaF all day, man\
+  LT. Simon "Ghost" Riley kisser
 
   D'ya like\
   ‎. • ☆ . ° .• ![Ice Nine Kills](https://imgur.com/BxiEjFB.png)?
