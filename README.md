@@ -15,10 +15,14 @@ C+H also accepted whenever, just please don't be sad if I leave/walk away
 
 ☆  IF I am AFK on Pony Town, I'm either offtab and checking in occasionally or faking being AFK and just peoplewatching.
 
-☆
+☆                               ↓
 
-☆
+☆                       ↓ ↓↓↓↓↓↓ ↓
 
-← Say hi on my [strawpage!](https://enveil.straw.page/) ← PLEASE PLEASE PLEASE PLEASE PLEASE
+→ Say hi on my [strawpage!](https://enveil.straw.page/) ←
+
+☆                       ↑ ↑↑↑↑↑↑ ↑
+
+☆                               ↑
    
    please interact if i'm online, sobs
