@@ -23,7 +23,7 @@ C+H also accepted whenever, just please don't be sad if I leave/walk away
 
 ☆
 
-☆
+☆  IF I am AFK on Pony Town, I'm either offtab and checking in occasionally or faking being AFK and just peoplewatching.
 
 ☆
 
