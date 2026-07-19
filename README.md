@@ -28,7 +28,7 @@ C+H also accepted whenever, just please don't be sad if I leave/walk away
 ☆
 
 ☆\
-← wip hold on, atabook is an ipgrabber and im uncomfy w/ it
+← Say hi on my ![strawpage!](https://enveil.straw.page/) ←
   
 #  Interest list (games) ::
  
