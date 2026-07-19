@@ -24,5 +24,11 @@ I'm free to roleplay any time. I don't actively seek out roleplays at the docks 
 ☆                       ↑ ↑↑↑↑↑↑ ↑
 
 ☆                               ↑
-   
+
+☆
+
    please interact if i'm online, sobs
+
+☆
+
+Despite being on a game based on MLP, I don't actually like MLP all that much... I just play Pony Town for the social aspect & casual cosplaying. And I like making skins.
