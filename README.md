@@ -27,6 +27,10 @@ I'm free to roleplay any time. I don't actively seek out roleplays at the docks 
 
 ☆
 
+☆ Very multifandom - FANDOMS ON STRAWPAGE!
+
+☆
+
    please interact if i'm online, sobs
 
 ☆
