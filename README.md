@@ -1,7 +1,7 @@
 ## Hellos 👋
 ‎ 
 
-I exist.
+I exist. I also don't know how to format Github well. ¯\\\_(ツ)\_/¯
   
 ‎
 ‎ ☆
@@ -25,14 +25,45 @@ I'm free to roleplay any time. I don't actively seek out roleplays at the docks 
 
 ☆                               ↑
 
-☆
-
 ☆ Very multifandom - FANDOMS ON STRAWPAGE!
 
 ☆
 
-   please interact if i'm online, sobs
+![Enveil](https://imgur.com/hR872ra.gif)
+![Enveil's Avatar](https://imgur.com/dwXyZVu.gif)
+![AI IS NOT ART](https://imgur.com/OlUFHVq.gif)
+![The Entity](https://imgur.com/Hv2mDoh.gif)
+![The Ghost of Roseville](https://imgur.com/XhF8P9O.gif)
+![Ghostface Fictkin](https://imgur.com/BdNUFjA.gif)
+![Peoplewatcher](https://imgur.com/7xKg67v.gif)
+![D'ya like scary movies?](https://imgur.com/XMQdmuY.gif)
+![Ice Nine Kills](https://imgur.com/rPglAw6.gif)
+![INK](https://imgur.com/mrFm7Zb.gif)
+![Horror Lover](https://imgur.com/3hfKaqZ.gif)
+![I'm going to stop captioning these blinkies now](https://imgur.com/tsgkwws.gif)
+![](https://imgur.com/CGWLoqs.gif)
+![](https://imgur.com/ZI32gGL.gif)
+![](https://imgur.com/pWkrA68.gif)
+![](https://imgur.com/sGTjGqA.gif)
+![](https://imgur.com/N3a1uxO.gif)
+![](https://imgur.com/lTeABW1.gif)
+![](https://imgur.com/FjWIzYh.gif)
+![](https://imgur.com/VO9pEWe.gif)
+![](https://imgur.com/ySCLQ4z.gif)
+![](https://imgur.com/SPw3d3l.gif)
+![](https://imgur.com/3pSZSMt.gif)
+![](https://imgur.com/kjHtjxX.gif)
+![](https://imgur.com/IoqSuM3.gif)
+![](https://imgur.com/ZRvkVT5.gif)
+![](https://imgur.com/W4QDoM2.gif)
+![](https://imgur.com/SH4AVK9.gif)
+![](https://imgur.com/1CztAbd.gif)
+![](https://imgur.com/neZePEx.gif)
+![](https://imgur.com/QSu17Am.gif)
+![](https://imgur.com/z4aPUEq.gif)
+![](https://imgur.com/9wKfYcR.gif)
+![](https://imgur.com/oGUPGEr.gif)
 
-☆
 
-Despite being on a game based on MLP, I don't actually like MLP all that much... I just play Pony Town for the social aspect & casual cosplaying. And I like making skins.
+![](https://imgur.com/pi7vaIN.gif)
+![](https://imgur.com/WKAAvnc.gif)
