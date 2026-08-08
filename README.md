@@ -6,6 +6,9 @@ I exist. I also don't know how to format Github well. ¯\\\_(ツ)\_/¯
 ‎
 ‎ ☆
 
+![Enveil](https://imgur.com/hR872ra.gif)\
+![Enveil's Avatar](https://imgur.com/dwXyZVu.gif)
+
   DO NOT copy my stuff anywhere, no matter where you see me. Please and thank you. C*pytown needs to die.
 
 I'm free to roleplay any time. I don't actively seek out roleplays at the docks because I'm vaguely uncomfy with a private island rp though.\
@@ -29,8 +32,6 @@ I'm free to roleplay any time. I don't actively seek out roleplays at the docks 
 
 ☆
 
-![Enveil](https://imgur.com/hR872ra.gif)
-![Enveil's Avatar](https://imgur.com/dwXyZVu.gif)
 ![AI IS NOT ART](https://imgur.com/OlUFHVq.gif)
 ![The Entity](https://imgur.com/Hv2mDoh.gif)
 ![The Ghost of Roseville](https://imgur.com/XhF8P9O.gif)
