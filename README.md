@@ -18,15 +18,15 @@ I'm free to roleplay any time. I don't actively seek out roleplays at the docks 
 
 ☆  IF I am AFK on Pony Town, I'm either offtab and checking in occasionally or faking being AFK and just peoplewatching.
 
-☆                               ↓
+☆                                   ↓
 
-☆                       ↓ ↓↓↓↓↓↓ ↓
+☆                           ↓ ↓↓↓↓↓↓ ↓
 
-→ Say hi on my [strawpage!](https://enveil.straw.page/) ←
+→  [![](https://imgur.com/4tEorHC.png "Strawpage")](https://enveil.straw.page/)
 
-☆                       ↑ ↑↑↑↑↑↑ ↑
+☆                           ↑ ↑↑↑↑↑↑ ↑
 
-☆                               ↑
+☆                                   ↑
 
 ☆ Very multifandom - FANDOMS ON STRAWPAGE!
 
