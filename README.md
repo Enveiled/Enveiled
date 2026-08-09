@@ -1,13 +1,24 @@
 ## Hellos 👋
 ‎ 
 
-I exist. I also don't know how to format Github well. ¯\\\_(ツ)\_/¯
+I exist. ¯\\\_(ツ)\_/¯
+#
+
+<p align="center"
+
+!!!IF ANOTHER GITHUB IS LINKING TO THIS ONE, CLAIMING THAT THIS ONE IS THE MAIN GITHUB, IT IS NOT ME!!!\
+I don't like impersonators ):
+#
+
+<p align="center"
+
+☁︎
 
 <p align="center"
 
 ‎
 ‎ ☆ ![](https://komarev.com/ghpvc/?username=enveiled&label=Entered+the+Fog&color=4d0707) ☆
-
+  
 <p align="center"
 
 ![Enveil](https://imgur.com/hR872ra.gif "me")\
@@ -28,7 +39,7 @@ I'm free to roleplay any time. I don't actively seek out roleplays at the docks 
 
 <p align="center"
 
-☆
+☁︎
 
 <p align="center"
 
