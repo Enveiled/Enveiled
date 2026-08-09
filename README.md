@@ -6,7 +6,7 @@ I exist. I also don't know how to format Github well. ¯\\\_(ツ)\_/¯
 <p align="center"
 
 ‎
-‎ ☆ ![](https://komarev.com/ghpvc/?username=enveiled&label=i+like+numbers&color=4d0707) ☆
+‎ ☆ ![](https://komarev.com/ghpvc/?username=enveiled&label=Entered+the+Fog&color=4d0707) ☆
 
 <p align="center"
 
@@ -16,6 +16,10 @@ I exist. I also don't know how to format Github well. ¯\\\_(ツ)\_/¯
 
 ![DO NOT copy my stuff anywhere, no matter where you see me. Please and thank you.](https://imgur.com/UFvfMXe.gif "DO NOT COPY MY SHIT") \
 C*pytown needs to die.
+
+<p align="center"
+
+\~~'☁︎•°⋆༅———————————————-•°—☁︎—•—•—☁︎—°•-———————————————࿓⋆°•☁︎`~\~
 
 <p align="center"
 
@@ -32,11 +36,7 @@ IF I am AFK on Pony Town, I'm either offtab and checking in occasionally or faki
 
 <p align="center"
 
-☆
-
-<p align="center"
-
-☆
+\~~'☁︎•°⋆༅——————————————————•-☁︎-•——————————————————࿓⋆°•☁︎`~\~
 
 <p align="center"
 
@@ -48,10 +48,15 @@ Pleasepleaseplease sign my straw - I don't trust atabook
 
 <p align="center"
 
-☆
+\~~'☁︎•°⋆༅———————————————————————————————————————࿓⋆°•☁︎`~\~
+
 #
 ty! [@title-town](https://github.com/title-town) ![](https://imgur.com/2ScaGj2.png "YIPPEE!!")
 #
+
+<p align="center"
+
+\~~'☁︎•°⋆༅———————————————————————————————————————࿓⋆°•☁︎`~\~
 
 <p align="center"
 
@@ -92,3 +97,7 @@ ty! [@title-town](https://github.com/title-town) ![](https://imgur.com/2ScaGj2.p
 
 ![](https://imgur.com/pi7vaIN.gif)
 ![](https://imgur.com/WKAAvnc.gif)
+
+<p align="center"
+  
+![](https://imgur.com/ly4d35k.png)
