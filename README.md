@@ -27,11 +27,9 @@ I'm free to roleplay any time. I don't actively seek out roleplays at the docks 
 ☆                           ↑ ↑↑↑↑↑↑ ↑
 
 ☆                                   ↑
-
-☆ Very multifandom - FANDOMS ON STRAWPAGE!
-
-☆
-
+#
+ty! [@title-town](https://github.com/title-town) ![](https://imgur.com/2ScaGj2.png "YIPPEE!!")
+#
 ![AI IS NOT ART](https://imgur.com/OlUFHVq.gif)
 ![The Entity](https://imgur.com/Hv2mDoh.gif)
 ![The Ghost of Roseville](https://imgur.com/XhF8P9O.gif)
