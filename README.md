@@ -26,7 +26,8 @@ I don't like impersonators ):
 <p align="center"
 
 ![DO NOT copy my stuff anywhere, no matter where you see me. Please and thank you.](https://imgur.com/UFvfMXe.gif "DO NOT COPY MY SHIT") \
-C*pytown needs to die.
+C*pytown needs to die.\
+[CT Awareness doc](https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc/edit?tab=t.0) made by [sera741](https://github.com/sera741)
 
 <p align="center"
 
@@ -36,6 +37,10 @@ C*pytown needs to die.
 
 I'm free to roleplay any time. I don't actively seek out roleplays at the docks because I'm vaguely uncomfy with a private island rp though.\
 ! C+H also accepted whenever, just please don't be sad if I leave/walk away
+
+<p align="center"
+
+If I'm alone as a character, I'll probably act like them a bit. I... like roleplaying.
 
 <p align="center"
 
@@ -55,14 +60,15 @@ IF I am AFK on Pony Town, I'm either offtab and checking in occasionally or faki
 
 <p align="center"
 
-Pleasepleaseplease sign my straw - I don't trust atabook
+Sign my straw!! !!!!! !! !
 
 <p align="center"
 
 \~~'☁︎•°⋆༅———————————————————————————————————————࿓⋆°•☁︎`~\~
 
 #
-ty! [@title-town](https://github.com/title-town) ![](https://imgur.com/2ScaGj2.png "YIPPEE!!")
+[@title-town](https://github.com/title-town) ![](https://imgur.com/2ScaGj2.png "YIPPEE!!")\
+[@pt-fashion](https://github.com/pt-fashion) ![](https://imgur.com/tBdIhCg.png "YAY")
 #
 
 <p align="center"
