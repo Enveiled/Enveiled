@@ -25,7 +25,7 @@ I'm free to roleplay any time. I don't actively seek out roleplays at the docks 
 
 →                                                                  [![](https://imgur.com/4tEorHC.png "Strawpage")](https://enveil.straw.page/)
 
-☆
+☆                                                      Pleasepleaseplease sign my straw - I don't trust atabook
 
 ☆
 #
