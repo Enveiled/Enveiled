@@ -6,7 +6,7 @@ I exist. I also don't know how to format Github well. ¯\\\_(ツ)\_/¯
 <p align="center"
 
 ‎
-‎ ☆
+‎ ☆ ![](https://komarev.com/ghpvc/?username=enveiled&label=i+like+numbers&color=4d0707) ☆
 
 <p align="center"
 
