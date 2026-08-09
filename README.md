@@ -6,10 +6,11 @@ I exist. I also don't know how to format Github well. ¯\\\_(ツ)\_/¯
 ‎
 ‎ ☆
 
-![Enveil](https://imgur.com/hR872ra.gif)\
-![Enveil's Avatar](https://imgur.com/dwXyZVu.gif)
+                                                                                   ![Enveil](https://imgur.com/hR872ra.gif "me")\
+                                                                                   ![Enveil's Avatar](https://imgur.com/dwXyZVu.gif "my avatar")
 
-  DO NOT copy my stuff anywhere, no matter where you see me. Please and thank you. C*pytown needs to die.
+                                                                               ![DO NOT copy my stuff anywhere, no matter where you see me. Please and thank you.](https://imgur.com/UFvfMXe.gif "DO NOT COPY MY SHIT") \
+                                                                                  C*pytown needs to die.
 
 I'm free to roleplay any time. I don't actively seek out roleplays at the docks because I'm vaguely uncomfy with a private island rp though.\
 ! C+H also accepted whenever, just please don't be sad if I leave/walk away
