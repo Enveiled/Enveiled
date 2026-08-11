@@ -107,13 +107,14 @@ Sign my straw!! !!!!! !! !
 ![](https://imgur.com/neZePEx.gif)
 ![](https://imgur.com/QSu17Am.gif)
 ![](https://imgur.com/z4aPUEq.gif)
-![](https://imgur.com/9wKfYcR.gif)
-![](https://imgur.com/oGUPGEr.gif)
 
 <p align="center"
 
-![](https://imgur.com/pi7vaIN.gif)
-![](https://imgur.com/WKAAvnc.gif)
+\~~'☁︎•°⋆༅———————————————————————————————————————࿓⋆°•☁︎`~\~
+
+<p align="center"
+
+![PRAISE THE ENTITY](https://imgur.com/9RRw3uQ.png "Praise the Black Fog")
 
 <p align="center"
   
