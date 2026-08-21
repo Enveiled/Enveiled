@@ -68,7 +68,8 @@ Sign my straw!! !!!!! !! !
 
 #
 [@title-town](https://github.com/title-town) ![](https://imgur.com/2ScaGj2.png "YIPPEE!!")\
-[@pt-fashion](https://github.com/pt-fashion) ![](https://imgur.com/tBdIhCg.png "YAY")
+[@pt-fashion](https://github.com/pt-fashion) ![](https://imgur.com/tBdIhCg.png "YAY")\
+[@pt-hall-of-media](https://github.com/pt-hall-of-media) ![](https://imgur.com/akxmLQa.png "HURRAH!")
 #
 
 <p align="center"
