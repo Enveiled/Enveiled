@@ -6,8 +6,7 @@ I exist. ¯\\\_(ツ)\_/¯
 
 <p align="center"
 
-!!!IF ANOTHER GITHUB IS LINKING TO THIS ONE, CLAIMING THAT THIS ONE IS THE MAIN GITHUB, IT IS NOT ME!!!\
-I don't like impersonators ):
+!!!IF ANOTHER GITHUB IS LINKING TO THIS ONE, CLAIMING THAT THIS ONE IS THE MAIN GITHUB, IT IS NOT ME!!!
 #
 
 <p align="center"
@@ -40,7 +39,7 @@ I'm free to roleplay any time. I don't actively seek out roleplays at the docks 
 
 <p align="center"
 
-If I'm alone as a character, I'll probably act like them a bit. I... like roleplaying.
+Don't be afraid to interact when I have ![](https://imgur.com/Sy3YhgS.png) or ![](https://imgur.com/iqeFyo1.png) on! 'Cause I'm.. actively looking for someone to talk to.
 
 <p align="center"
 
