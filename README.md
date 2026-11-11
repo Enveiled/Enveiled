@@ -34,9 +34,9 @@ Meaning: Don't copy my shit\
 
 <p align="center"
 
-Free to roleplay anytime
-Usually in character of whatever my skin is unless normal conversation is prompted\
-C+H whenever
+$\color{#802b25}{\textsf{Free to roleplay anytime}}$\
+$\color{#993831}{\textsf{Usually in character of whatever my skin is unless normal conversation is prompted}}$\
+$\color{#b3433b}{\textsf{C+H whenever}}$
 
 <p align="center"
 
@@ -126,5 +126,3 @@ Come sign ^^ , I don't bite.
 <p align="center"
   
 ![](https://imgur.com/ly4d35k.png)
-
-$\color{#993831}{\textsf{testingtesting123hihellogreetingsgutentagkonnichiwaohayo}}$\
