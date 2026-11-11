@@ -1,31 +1,22 @@
 ## Hellos 👋
 ‎ 
 
-I exist. ¯\\\_(██)\_/¯
+I exist. ¯\\\_($\color{#000000}{\textsf{▄█}}$\)\_/¯
 #
 
 <p align="center"
 
-! IF ANOTHER GITHUB IS LINKING TO THIS ONE, CLAIMING THAT THIS ONE IS THE MAIN GITHUB, IT IS NOT ME !
-#
-
-<p align="center"
-
-☁︎
+—
 
 <p align="center"
 
 ‎
-‎ ☆ ![](https://komarev.com/ghpvc/?username=enveiled&label=Entered+the+Fog&color=4d0707) ☆
+‎ ☁︎ ☆ ![](https://komarev.com/ghpvc/?username=enveiled&label=Entered+the+Fog&color=4d0707) ☆ ☁︎
   
 <p align="center"
 
-![Enveil](https://imgur.com/hR872ra.gif "me")\
-![Enveil's Avatar](https://imgur.com/dwXyZVu.gif "my avatar")
-<p align="center"
-
 ![DO NOT copy my stuff anywhere, no matter where you see me. Please and thank you.](https://imgur.com/UFvfMXe.gif "DO NOT COPY MY SHIT") \
-Meaning: Don't copy my shit\
+$\color{#a3a3a3}{\textsf{Meaning: Don't copy my shit, thanks}}$\
 [Copytown Awareness doc](https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc/edit?tab=t.0) made by [sera741](https://github.com/sera741)
 
 <p align="center"
@@ -40,7 +31,7 @@ $\color{#b3433b}{\textsf{C+H whenever}}$
 
 <p align="center"
 
-Don't be afraid to interact when I have ![](https://imgur.com/Sy3YhgS.png) or ![](https://imgur.com/iqeFyo1.png) on! 'Cause I'm.. actively looking for someone to talk to.
+$\color{#993831}{\textsf{Don't be afraid to interact when I have}}$ ![](https://imgur.com/Sy3YhgS.png) $\color{#993831}{\textsf{or}}$ ![](https://imgur.com/iqeFyo1.png) $\color{#993831}{\textsf{on! 'Cause I'm.. actively looking for someone to talk to.}}$
 
 <p align="center"
 
@@ -48,11 +39,11 @@ Don't be afraid to interact when I have ![](https://imgur.com/Sy3YhgS.png) or ![
 
 <p align="center"
 
-IF I am AFK on Pony Town, I'm either offtab and checking in occasionally or faking being AFK and just peoplewatching.
+$\color{#802b25}{\textsf{IF I am AFK on Pony Town, I'm either offtab and checking in occasionally or faking being AFK and just peoplewatching.}}$
 
 <p align="center"
 
-I like listening in on drama
+$\color{#b3433b}{\textsf{I like listening in on drama... yap to me}}$
 
 <p align="center"
 
@@ -64,7 +55,7 @@ I like listening in on drama
 
 <p align="center"
 
-Come sign ^^ , I don't bite.
+$\color{#4a1919}{\textsf{I don't bite}}$
 
 <p align="center"
 
@@ -81,6 +72,11 @@ Come sign ^^ , I don't bite.
 <p align="center"
 
 \~~'☁︎•°⋆༅———————————————————————————————————————࿓⋆°•☁︎`~\~
+
+<p align="center"
+
+![Enveil](https://imgur.com/hR872ra.gif "me")\
+![Enveil's Avatar](https://imgur.com/dwXyZVu.gif "my avatar")
 
 <p align="center"
 
