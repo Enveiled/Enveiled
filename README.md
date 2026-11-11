@@ -48,6 +48,10 @@ $\color{#b3433b}{\textsf{I like listening in on drama... yap to me}}$
 
 <p align="center"
 
+$\color{#b3433b}{\textsf{↓ More info here ↓}}$\
+  
+<p align="center"
+
 [![](https://imgur.com/4tEorHC.png "Strawpage")](https://enveil.straw.page/)
 
 <p align="center"
