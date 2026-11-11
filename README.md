@@ -1,7 +1,7 @@
 ## Hellos 👋
 ‎ 
 
-I exist. ¯\\\_(ツ)\_/¯
+I exist. ¯\\\_(██)\_/¯
 #
 
 <p align="center"
@@ -25,8 +25,8 @@ I exist. ¯\\\_(ツ)\_/¯
 <p align="center"
 
 ![DO NOT copy my stuff anywhere, no matter where you see me. Please and thank you.](https://imgur.com/UFvfMXe.gif "DO NOT COPY MY SHIT") \
-C*pytown needs to die.\
-[CT Awareness doc](https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc/edit?tab=t.0) made by [sera741](https://github.com/sera741)
+Meaning: Don't copy my shit\
+[Copytown Awareness doc](https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc/edit?tab=t.0) made by [sera741](https://github.com/sera741)
 
 <p align="center"
 
@@ -34,7 +34,7 @@ C*pytown needs to die.\
 
 <p align="center"
 
-I'm free to roleplay any time.\
+Free to roleplay anytime
 Usually in character of whatever my skin is unless normal conversation is prompted\
 C+H whenever
 
@@ -52,6 +52,10 @@ IF I am AFK on Pony Town, I'm either offtab and checking in occasionally or faki
 
 <p align="center"
 
+I like listening in on drama
+
+<p align="center"
+
 \~~'☁︎•°⋆༅——————————————————•-☁︎-•——————————————————࿓⋆°•☁︎`~\~
 
 <p align="center"
@@ -60,7 +64,7 @@ IF I am AFK on Pony Town, I'm either offtab and checking in occasionally or faki
 
 <p align="center"
 
-Come sign ^^ , I don't bite
+Come sign ^^ , I don't bite.
 
 <p align="center"
 
@@ -122,3 +126,5 @@ Come sign ^^ , I don't bite
 <p align="center"
   
 ![](https://imgur.com/ly4d35k.png)
+
+$\color{#993831}{\textsf{testingtesting123hihellogreetingsgutentagkonnichiwaohayo}}$\
