@@ -34,8 +34,9 @@ C*pytown needs to die.\
 
 <p align="center"
 
-I'm free to roleplay any time. I don't actively seek out roleplays at the docks because I'm vaguely uncomfy with a private island rp though.\
-! C+H also accepted whenever, just please don't be sad if I leave/walk away
+I'm free to roleplay any time.\
+Usually in character of whatever my skin is unless normal conversation is prompted\
+C+H whenever
 
 <p align="center"
 
@@ -59,7 +60,7 @@ IF I am AFK on Pony Town, I'm either offtab and checking in occasionally or faki
 
 <p align="center"
 
-Sign my straw!! !!!!! !! !
+Come sign ^^ , I don't bite
 
 <p align="center"
 
