@@ -1,6 +1,3 @@
-## Hellos 👋
-‎ 
-
 I exist. ¯\\\_($\color{#000000}{\textsf{▄█}}$\)\_/¯
 #
 
