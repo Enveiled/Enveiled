@@ -67,7 +67,8 @@ $\color{#4a1919}{\textsf{I don't bite}}$
 [@pt-fashion](https://github.com/pt-fashion) ![](https://imgur.com/tBdIhCg.png "YAY")\
 [@pt-hall-of-media](https://github.com/pt-hall-of-media) ![](https://imgur.com/akxmLQa.png "HURRAH!")\
 [@PT-FANtastic-Hall](https://github.com/PT-FANtastic-Hall) ![](https://imgur.com/nHUtyQB.png "This account is owned by a friend!")\
-[@pt-everypony](https://github.com/pt-everypony) ![](https://imgur.com/LVYghRf.png "HURRAY!")
+[@pt-everypony](https://github.com/pt-everypony) ![](https://imgur.com/LVYghRf.png "HURRAY!")\
+[@THE-TEMPIST](https://github.com/THE-TEMPIST) ![](https://imgur.com/zpbpXAa.png "THANK YOU!")
 #
 
 <p align="center"
