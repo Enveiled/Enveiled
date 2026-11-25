@@ -48,7 +48,7 @@ $\color{#b3433b}{\textsf{I like listening in on drama... yap to me}}$
 
 <p align="center"
 
-$\color{#b3433b}{\textsf{↓ More info here ↓}}$\
+$\color{#b3433b}{\textsf{↓ More info here ↓}}$
   
 <p align="center"
 
